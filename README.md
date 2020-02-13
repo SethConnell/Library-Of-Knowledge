@@ -24,3 +24,6 @@ Want to understand the dangers of rent control policies? Then this is the book f
 
 [The Prince - By Niccolò Machiavelli](https://youtu.be/mr2HO8nV3Ws)
 You can't write a book list of important books without including this one. I've personally read it at least 4 times. In it, Machiavelli describes how power structures really work, giving numerous examples of brute force and article diplomacy - and the different results they help to achieve. If you're interested in pursuing a political career or climbing the social ladder, then this is a must-read.
+
+[Age Of Reason - By Thomas Paine](https://www.youtube.com/watch?v=ycgkogD7Jw4&t=17032s)
+This is perhaps the best book I've read to understand the hostile environment that existed among America's early founders. It is further proof that America has always been divided politically. The book itself are the drawn-out thoughts of a man that was far ahead of his time. In Age Of Reason, Paine successfully explains his views on the subjects of improved schooling systems, the moral flaws in Christianity, the capacity of man for self-improvement, and the moral failings of certian politcal leaders. It is a controversial work that undoubtedly led Paine to be an outcast in his own country in spite of the fact that he is the one who ultimately inspired the American Revolution.
