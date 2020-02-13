@@ -21,3 +21,6 @@ Charlie Munger was the silent giant behind the success of billionaire investor W
 
 [Basic Economics - By Thomas Sowell](https://www.youtube.com/watch?v=OrPxEmOV0YI&t=24792s)
 Want to understand the dangers of rent control policies? Then this is the book for you. In a broad stroke, Sowell manages to explain even some of the more complicated aspects of economics to the average person in clear, simple language. You'll learn about crony capitalism and the dangers of too much government intervention. But please be careful, although this book is a masterpiece of basic economic teachings, sometimes Sowell gets too caught up in his hate for state intervention. Take all that he says with a grain of salt and do your own economic research.
+
+[The Prince - By Niccolò Machiavelli](https://youtu.be/mr2HO8nV3Ws)
+You can't write a book list of important books without including this one. I've personally read it at least 4 times. In it, Machiavelli describes how power structures really work, giving numerous examples of brute force and article diplomacy - and the different results they help to achieve. If you're interested in pursuing a political career or climbing the social ladder, then this is a must-read.
