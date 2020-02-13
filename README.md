@@ -10,3 +10,6 @@ Although the book's premise may be a bit basic for the average reader, in the da
 
 [My Confession - By Leo Tolstoy](https://www.youtube.com/watch?v=1d3NrX1b6jU)
 Although there is much to be said about the absolute brokenness of Tolstoy as a person, there is undoubtedly a quality about this work in particular which allows us to still somewhat admire his effort. Although Tolstoy had his faults, in this book he clearly outlines his struggle to believe in Christ throughout his life. He clearly, and quiete beautifully, lays out his struggle with depression, and gives readers a terrifying sense of what it's truly like to be suicidal.
+
+[Lessons Of History - By Will Durant](https://www.youtube.com/watch?v=enJRIdmVHRE&t=10029s)
+Although brief, Durant's historical account of economics and philosophy will give every reader and listener a basic framework to understand how the world works. This book covers everything from how increased economic growth led to loose sexual behavior to how the warring ideologies of conservatism and liberalism are always fighting against each other - and how they ultimately lead to feedback loops throughout history.
