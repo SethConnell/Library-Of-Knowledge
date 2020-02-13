@@ -13,3 +13,6 @@ Although there is much to be said about the absolute brokenness of Tolstoy as a 
 
 [Lessons Of History - By Will Durant](https://www.youtube.com/watch?v=enJRIdmVHRE&t=10029s)
 Although brief, Durant's historical account of economics and philosophy will give every reader and listener a basic framework to understand how the world works. This book covers everything from how increased economic growth led to loose sexual behavior to how the warring ideologies of conservatism and liberalism are always fighting against each other - and how they ultimately lead to feedback loops throughout history.
+
+[The Psychology of Human Misjudgement - By Charlie Munger](https://www.youtube.com/watch?v=pqzcCfUglws)
+Charlie Munger was the silent giant behind the success of billionaire investor Warren Buffett. Both men were partners who helped each other build businesses and acquire net worths well over a billion dollars. What's interesting is that, although the article has been included in several books, this college lecture by Charlie Munger goes into deep psychological explanations regarding human motives and biases on a level that very few books are capable of doing. That's why I've chosen to add it to this list. By listening to it, you will gain a valuable insight into practical psychology that can be used to build vast amounts of wealth.
