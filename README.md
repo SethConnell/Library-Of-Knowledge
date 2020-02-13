@@ -1,4 +1,6 @@
 # Library Of Knowledge
+![What This Library Would Look Like In Real Life](https://www.sheknows.com/wp-content/uploads/2018/08/fowkjjychkc2mw4hokzw.jpeg)
+
 A repository of links to useful audiobooks required for an in-depth classical education. Except unlike most book lists, this list will not contain fluffy feel-good books that contain no real value for the listener.  
 
 Sadly, there is no particular order for this book list. I will only add to it when I come across a book that I believe is valuable enough to be added to the list.
