@@ -7,6 +7,9 @@ Sadly, there is no particular order for this book list. I will only add to it wh
 
 I hope you find this collection useful.
 
+[The Audiobiography Of Benjamin Franklin - By Benjamin Franklin](https://www.youtube.com/watch?v=qExGjavdS7g)
+The story of Benjamin Franklin's long and interesting life are useful if you're an overachiever like he was. Not only was Franklin a renowned statesman, speaker, writer, and inventor, but he was also a business man as well. In fact, it was only through his business success that he was able to devote his life to academic achievements once he retired at the age of 30. If that's something you're interested in, then you should absolutely listen to this
+
 [Candide - By Voltaire](https://www.youtube.com/watch?v=p80wPlowp1A)
 Although the book's premise may be a bit basic for the average reader, in the day it was written, it was revolutionary. The book is a complete mockery of all that was held sacred in 1700s society. It was one of the first early books that made people aware of how ludicrous most rules really are. It might even be said that the book utlimately contributed to fueling the flames of the enlightenment era.
 
