@@ -39,3 +39,7 @@ This book is the perfect example of what true in-depth conversations are suppose
 
 [The Art Of War - By Sun Tzu](https://www.youtube.com/watch?v=X7rhovBK_eA)
 Weak people always act bigger than they are. But true strength lies in being stronger than you seem. This is just one example of the kind of overal strategic thinking contained in this book. Sun Tzu was a Chinese general, military strategist, writer and philosopher who tried his best to break down the basic princples behind strategic success in war. Many people now use the book to help them in business, since the same rules apply in both worlds.
+
+[The Book Of Five Rings - Miyamotto Musashi](https://i.ytimg.com/vi/wJ57Jl01aT0/hqdefault.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&rs=AOn4CLDMP_BDm7BtNJ6WHxgYD-KVUut5zA)
+Miyamotto Musashi had already won hundreds of sword battles by the time he was just 30 years old. He was a master swordsman and warrior who fought in Japan. Musashi later attributed his success in combat to a number of maxims and principles, which he outlined in his book.
+
